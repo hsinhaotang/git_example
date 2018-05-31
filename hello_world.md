@@ -12,5 +12,5 @@ Junk MTV quiz
 ## P4
 A wonderful serenity has taken possession of my entire soul.
 
-## P7
-Far far away, behind the word mountains, far from the
+## P5
+But I must explain to you how all this mistaken
